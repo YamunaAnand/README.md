@@ -9,7 +9,9 @@
 
 - You can Reach me on **yamunaanand16@gmail.com**
 
-- You can know my Experiences on [https://www.linkedin.com/in/yamuna-anand07/](https://www.linkedin.com/in/yamuna-anand07/)
+- Connect me on LinkedIn through [https://www.linkedin.com/in/yamuna-anand07/](https://www.linkedin.com/in/yamuna-anand07/)
+
+- For More, Check my Resume: **https://drive.google.com/file/d/1cFnHr_LuKr5OjTnNTTDIap9a8QaL7yC_/view?usp=sharing**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
